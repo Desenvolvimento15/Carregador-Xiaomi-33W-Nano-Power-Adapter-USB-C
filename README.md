@@ -1,0 +1,1 @@
+# Carregador-Xiaomi-33W-Nano-Power-Adapter-USB-C
